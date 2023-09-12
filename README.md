@@ -1,1 +1,1 @@
-# mindycaito.creative
+# mindyportfolio
